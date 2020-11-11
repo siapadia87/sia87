@@ -1,0 +1,2 @@
+# sia87
+TOP.GG API ONLY!!!  ANY OFF-TOPIC CONVERSATION WILL BE DELETED AND MUTED This channel is only for SUGGESTIONS/HELP/BUGS to do with OFFICIAL API LIBRARIES and API DOCS found at: https://top.gg/api/docs
